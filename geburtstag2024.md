@@ -1,3 +1,5 @@
+# Wunschliste
+
 ## Kontrabass
 
 - [Fast Fret](https://www.thomann.de/de/ghs_fast_fret.htm)
@@ -23,5 +25,5 @@
 ## Manga
 
 - [Weathering With You](https://www.amazon.de/Weathering-You-01-Makoto-Shinkai/dp/3770427068/ref=sr_1_1?crid=106ABMP6WRRZ0&dib=eyJ2IjoiMSJ9.QaSqGjFONh4US8E4Lur-AwIzydx9IGLZeasPJalQICRQLbiCvDRHEanzYiGy3zTy58ChJuxjIMtUiL3eXlyMUZSe-sYNisPuekwfa03XiQ-0aocQuiI2GptuH6knb8JwNCxyv9mLuITPMRi-y0-l6ZJGblbYfLcsNjVGF89X8JiTifbzWvtP9DniATQ0zUkcpjUy5w2xD3B0Ud4iOAcudQADvaILMwcLmkhJdq2hpQI.ADIQ95OaAKeQk_dBCtj4kfwXIeXV7n8APVV5v6tfpo0&dib_tag=se&keywords=weathering+with+you+manga&qid=1728491713&sprefix=waethering+with%2Caps%2C377&sr=8-1)
-- [Weathering With You](https://www.amazon.de/Weathering-You-02-Makoto-Shinkai/dp/3770427076/ref=sr_1_2?crid=106ABMP6WRRZ0&dib=eyJ2IjoiMSJ9.QaSqGjFONh4US8E4Lur-AwIzydx9IGLZeasPJalQICRQLbiCvDRHEanzYiGy3zTy58ChJuxjIMtUiL3eXlyMUZSe-sYNisPuekwfa03XiQ-0aocQuiI2GptuH6knb8JwNCxyv9mLuITPMRi-y0-l6ZJGblbYfLcsNjVGF89X8JiTifbzWvtP9DniATQ0zUkcpjUy5w2xD3B0Ud4iOAcudQADvaILMwcLmkhJdq2hpQI.ADIQ95OaAKeQk_dBCtj4kfwXIeXV7n8APVV5v6tfpo0&dib_tag=se&keywords=weathering+with+you+manga&qid=1728491713&sprefix=waethering+with%2Caps%2C377&sr=8-2)
+- [Weathering With You 2](https://www.amazon.de/Weathering-You-02-Makoto-Shinkai/dp/3770427076/ref=sr_1_2?crid=106ABMP6WRRZ0&dib=eyJ2IjoiMSJ9.QaSqGjFONh4US8E4Lur-AwIzydx9IGLZeasPJalQICRQLbiCvDRHEanzYiGy3zTy58ChJuxjIMtUiL3eXlyMUZSe-sYNisPuekwfa03XiQ-0aocQuiI2GptuH6knb8JwNCxyv9mLuITPMRi-y0-l6ZJGblbYfLcsNjVGF89X8JiTifbzWvtP9DniATQ0zUkcpjUy5w2xD3B0Ud4iOAcudQADvaILMwcLmkhJdq2hpQI.ADIQ95OaAKeQk_dBCtj4kfwXIeXV7n8APVV5v6tfpo0&dib_tag=se&keywords=weathering+with+you+manga&qid=1728491713&sprefix=waethering+with%2Caps%2C377&sr=8-2)
 - [Weathering With You 3](https://www.amazon.de/Weathering-You-03-Makoto-Shinkai/dp/3770441591/ref=sr_1_3?crid=106ABMP6WRRZ0&dib=eyJ2IjoiMSJ9.QaSqGjFONh4US8E4Lur-AwIzydx9IGLZeasPJalQICRQLbiCvDRHEanzYiGy3zTy58ChJuxjIMtUiL3eXlyMUZSe-sYNisPuekwfa03XiQ-0aocQuiI2GptuH6knb8JwNCxyv9mLuITPMRi-y0-l6ZJGblbYfLcsNjVGF89X8JiTifbzWvtP9DniATQ0zUkcpjUy5w2xD3B0Ud4iOAcudQADvaILMwcLmkhJdq2hpQI.ADIQ95OaAKeQk_dBCtj4kfwXIeXV7n8APVV5v6tfpo0&dib_tag=se&keywords=weathering+with+you+manga&qid=1728491713&sprefix=waethering+with%2Caps%2C377&sr=8-3)
