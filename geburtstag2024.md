@@ -4,6 +4,11 @@
 
 - [Fast Fret](https://www.thomann.de/de/ghs_fast_fret.htm)
 
+## Noten
+
+- [Vanhal Konzert](https://www.thalia.de/shop/home/artikeldetails/A1034548055)
+- [Eccles Sonata](https://amzn.eu/d/6IqsMjt)
+
 ## Bücher
 
 - [Das Einhörnchen, das rückwärts leben wollte](https://www.thalia.de/shop/home/artikeldetails/A1072610416) (Walter Moers)
